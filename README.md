@@ -1,4 +1,5 @@
-## Hi there 👋
+![4b37ab0f645a0e8d35db0fa365aef0dd](https://github.com/user-attachments/assets/8aa391d1-d29f-4143-9bf3-6da7d46d6957)
+
 
 <!--
 **CH3NGX/CH3NGX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

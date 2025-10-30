@@ -1,4 +1,4 @@
-<P>my lovelys: Frizzy, 
+<P>my sillies: Frizzy, 
   Sleepy, Alim, kem,
   Switz, Lynx, Moya, 
   Yuu, Davidd, Len,

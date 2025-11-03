@@ -5,7 +5,8 @@
   Hannie/june, Seth, Sai, Sunsets,
   Vasco, and many more lovely friends ^_^</P>
 
-![4b37ab0f645a0e8d35db0fa365aef0dd](https://github.com/user-attachments/assets/8aa391d1-d29f-4143-9bf3-6da7d46d6957)
+![2a1087a2fb4de9a6424ce7275801d2c2](https://github.com/user-attachments/assets/e3712515-93b2-4a5a-a9b2-fbeb5b2051f5)
+
 
 <img width="626" height="378" alt="0a40e3efde31ce3b12f6a7fe7967eb0c" src="https://github.com/user-attachments/assets/c61b1bc6-dd00-4833-9900-e48499878ee0" />
 <p>Hannie/june <33 my loverly friend ^_^</p>

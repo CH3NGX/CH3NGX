@@ -1,5 +1,5 @@
 <P>my sillies: Frizzy, 
-   kem,
+   Sleepy, Alim, (im sorry.)
   Switz, Lynx, Moya, 
   Yuu, Davidd, Len,
   Hannie/june, Seth, Sai, Sunsets,

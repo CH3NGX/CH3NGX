@@ -2,7 +2,7 @@
    Sleepy, Alim, (im sorry.)
   Switz, Lynx, Moya, 
   Yuu, Davidd, Len,
-  Hannie/june, Seth, Sai, Sunsets,
+  Hannie/june, Seth, Sai, Sunsets(Very close friend<3),
   Vasco, and many more lovely friends ^_^</P>
 
 ![2a1087a2fb4de9a6424ce7275801d2c2](https://github.com/user-attachments/assets/e3712515-93b2-4a5a-a9b2-fbeb5b2051f5)
